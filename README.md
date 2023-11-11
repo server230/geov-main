@@ -1,4 +1,4 @@
-# Geovisor UV
+# Geovisor Comuna 5, Cali
 
 En el corazón de Cali, la Comuna 5 destaca como un tesoro de diversidad y oportunidades. Un geovisor innovador ahora revela su riqueza cultural, educativa y deportiva. Esta ventana digital no solo muestra calles y paisajes, sino también los pilares fundamentales de la comuna, como su floreciente oferta educativa, desde escuelas hasta instituciones superiores.
 La Comuna 5 es más que un centro académico; es un crisol espiritual. El geovisor ilustra con gracia los centros religiosos que moldean la identidad espiritual, entrelazando templos, iglesias y mezquitas en el tejido urbano, mostrando la riqueza de creencias que coexisten.
